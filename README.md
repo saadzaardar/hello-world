@@ -2,4 +2,4 @@
 Sudani
 
 Hello.
- I am Saad from Sudan from and I am here to learn
+ I am Saad from Sudan and I am here to learn
